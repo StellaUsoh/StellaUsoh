@@ -17,9 +17,9 @@ A look at the products I've led, the problems behind them, and how I approached 
 
 - 😊 Pronouns: She/her
 - 💡 Fun fact: I love to read fiction; particularly African Lit.
-- 😊 I’m looking for help with open source projects, hackathons, internships, and entry-level opportunities.
+- 😊 I’m looking to work with open source projects, hackathons, internships, and mid-level opportunities.
 - 💼 Job interests: Product Manager, or Project Manager.
-- 📫 You can [view my resume](https://www.canva.com/design/DAGHAA2r1M8/JWOZef4XR-P2PYHQ5KLiIQ/edit?utm_content=DAGHAA2r1M8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton) and contact me by emailing Stellausohh@gmail.com
+- 📫 You can [view my resume](https://docs.google.com/document/d/1N6zrM7NwXLZdBfGoCvK2Uelb9XFfbf_x/edit?usp=sharing&ouid=108110312160043704256&rtpof=true&sd=true) and contact me by emailing Stellausohh@gmail.com
 
 
 
